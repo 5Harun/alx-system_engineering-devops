@@ -1,2 +1,1 @@
-#!/bin/bash
-0-current working directory
+VimCrypt~03!&•¢W“ò‰=oR»[‚ïdQ|¿,\ê¿'ŒÛ7!W'Pkï­p?xK	’¨<ÒŠµhöKÍ
